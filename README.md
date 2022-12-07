@@ -4,7 +4,7 @@ From another angle to think
 
 ### Nice to meet you
 
-· Lund University - Bioinformatics
+· Master: Lund University - Bioinformatics
 
-· China 
+· PhD : Karolinska institutet - Neuropsychiatry
 
